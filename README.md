@@ -32,6 +32,6 @@ Contributions to this project are welcome! If you find any issues or have sugges
 
 ## Contact
 
-If you have any questions or need further assistance, feel free to contact [your-email@example.com](mailto:bishwanathjanaavengers@gmail.com). I would be happy to help!
+If you have any questions or need further assistance, feel free to contact [your-bishwanathjanaavengers@gmail.com](mailto:bishwanathjanaavengers@gmail.com). I would be happy to help!
 
 Happy predicting!
